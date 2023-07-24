@@ -1,1 +1,1 @@
-God please help so that will complete this alx course and also give me the knowledge that will help to understand and do all the ALX task by my self without copying from anybodys' work please answer my prayer in the name of our lord Jesus Christ Amen.
+God please help so that I will complete this alx course and also give me the knowledge that will help me to understand and do all the ALX task by my self without copying from anybodys' work please answer my prayer in the name of our lord Jesus Christ Amen.
